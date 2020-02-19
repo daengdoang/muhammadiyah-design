@@ -1,3 +1,3 @@
 README PLEASE
 
-muhammadiyah-jabar.id
+Initiated by: Daeng Muhammad Feisal
